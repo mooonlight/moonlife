@@ -1,3 +1,8 @@
+### @spaceman:
+[Sennheiser HD25-1](https://www.amazon.com/s/?ie=UTF8&keywords=sennheiser+hd25-1-ii&tag=googhydr-20&index=aps&hvadid=27053787483&hvpos=1t1&hvexid=&hvnetw=g&hvrand=13294778950123490235&hvpone=&hvptwo=&hvqmt=e&hvdev=c&ref=pd_sl_7tk9phxkkz_e)<br/>
+Easily the most comfortable overear headphones I've worn with glasses. The sound quality is great, as well.
+
+
 ### @boblannon:
 [Audio Technica ATM M40x Professional Monitor Headphones](https://www.amazon.com/Audio-Technica-ATH-M40x-Professional-Monitor-Headphones/dp/B00HVLUR54)<br/>
 i've been very happy with these. [runner-up on wirecutter](http://thewirecutter.com/reviews/the-best-150-over-ear-headphones/)
