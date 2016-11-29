@@ -1,0 +1,8 @@
+1. Dead End BBQ, 3621 Sutherland Avenue, Knoxville, TN 37919 (One of the top 100 BBQ restaurants in the country)
+2. 12 Bones Smokehouse, 5 Riverside Drive, Asheville, NC 28801 (Obama ate ribs here)
+3. Hannah's BBQ South, 2391 North Center Street, Hickory, NC 28601 (One of the top 100 BBQ restaurants in the country; Piedmont-style)
+4. Speedy's Barbecue Inc, 1317 Winston Road, Lexington, NC 27295 (Classic Lexington-style)
+5. Lexington Barbecue, 100 Smokehouse Lane, Lexington, NC 27295 (Second-best in the US behind Allen & Son)
+6. Stamey's Barbecue, 2206 West Gate City Boulevard, Greensboro, NC 27403 (Invented the finger-shaped hush puppy)
+7. Allen & Son Bar-B-Que, 6203 Millhouse Rd, Chapel Hill, NC 27516 (The Best Barbecue In The US according to me)
+8. Cook Out, 618 Boulevard, Colonial Heights, VA 23834 (Shakes and gas)
